@@ -1,4 +1,4 @@
-
+Get the ultimate marvel rivals aim assist wh with ultimate marvel rivals aim assist Wall Detection | hero synergy boost + enemy weakness detector. Featuring hero synergy boost and
 
 
 
